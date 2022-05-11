@@ -5,7 +5,8 @@
 https://user-images.githubusercontent.com/69445570/167896014-96b35c90-9c5c-4f3e-aee6-8384067262a8.mp4
 
 
-![Screenshot_1652285224](https://user-images.githubusercontent.com/69445570/167896372-0a27c250-c013-43d8-915e-ecd8aa455e99.png)
+
+![SKILLSME](https://user-images.githubusercontent.com/69445570/167897537-690bcd8a-96ee-4d59-9ae4-9cda919ca8ad.PNG)
 
 
 
